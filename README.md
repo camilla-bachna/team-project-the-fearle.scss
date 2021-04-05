@@ -59,7 +59,7 @@ Si te gusta nuestro trabajo y quieres saber más de nosotras, no dudes en **pone
 Aqui te dejamos nuestros enlaces a `LinkedIn`!
 Somos:
 
-- [Camilla Bachna](https://www.linkedin.com/in/camilla-bachna-815147146)
+- [Camilla Bachna](https://www.linkedin.com/in/camilla-bachna)
 - [Cristina Blanco](http://www.linkedin.com/in/cristina-blanco-iglesias)
 - [Irene Mañas](https://www.linkedin.com/in/irene-ma%C3%B1as-alcaide-5343b516b/)
 - [Laura Portillo](https://www.linkedin.com/in/laura-portillo-rodr%C3%ADguez-21965a86/)
